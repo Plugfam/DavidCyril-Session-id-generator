@@ -16,7 +16,7 @@
 
 
 
-[`ℹ️Contact Owner`](https://wa.me/923192173398)
+[`ℹ️Contact Owner`](https://wa.me/233559278841)
 
 FORK THE REPOSITORY (Repo) 
     <br>
